@@ -1,2 +1,1 @@
-# ko66
-ko66.vip
+Hệ thống KO66.com của chúng tôi có đầy đủ các sản phẩm giải trí phù hợp với mọi người chơi, một nền tảng giải trí đảm bảo tính công bằng và khách quan. Không chỉ cung cấp hàng trăm trò chơi trực tuyến mà còn gửi tặng rất nhiều phần thưởng hấp dẫn và các chương trình khuyến mãi đặc biệt. Đồng thời cố gắng cung cấp dịch vụ chăm sóc tốt cho các khách hàng!
